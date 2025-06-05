@@ -28,3 +28,4 @@ If we were given more time we'd familiarize ourselves more with VS code and the 
 
 
 ## Image and Video of Solution
+[!Finch Maze Runner](c:\Users\dsusam0001\Downloads\IMG_6270.jpeg)](https://www.youtube.com/shorts/FfjxRsSR6pE)
